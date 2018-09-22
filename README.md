@@ -1,6 +1,6 @@
 # AFTERGLOW - Transparent Fluorescent Paint Solution
 
-Since graffiti is widely prohibited why not hide it from the public view during the process of creation? Glow in the dark graffiti paint visible only at night is the answer. Create an eerie mood around your pieces as people stumble upon them.
+Since graffiti is widely prohibited or frowned upon why not hide it from the public view during and after the process of creation? Glow in the dark graffiti paint visible only at night is the answer. Create an eerie mood around your pieces as people stumble upon them.
 
 Various colours available. All of them have specific names.
 - shroomgreen,
