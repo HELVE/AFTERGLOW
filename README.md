@@ -10,6 +10,10 @@ Promo Campaign
 
 Campaign consisting of making obscure graffittis all over town. Squares in various patterns - using stencils.
 
+Find a natural solution.
+https://en.wikipedia.org/wiki/Bioluminescence
+https://www.wired.co.uk/article/glowee-squid-power
+
 https://www.wikihow.com/Make-Glow-in-the-Dark-Paint
 
 https://www.noxan.pl/spray/lakier-swiecacy-w-ciemnosci-spray-farba.html
