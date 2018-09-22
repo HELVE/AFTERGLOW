@@ -13,3 +13,5 @@ Campaign consisting of making obscure graffittis all over town. Squares in vario
 https://www.wikihow.com/Make-Glow-in-the-Dark-Paint
 
 https://www.noxan.pl/spray/lakier-swiecacy-w-ciemnosci-spray-farba.html
+
+Current solutions are expensive: https://www.noxan.pl/sklep/farby-luminescencyjne-/321-spray-luminescencyjny.html#/555-opakowanie-6_szt_x_400_ml/2058-kolory_luminous-bia%C5%82o_seledynowy_%C5%9Bwiec%C4%85cy_w_ciemno%C5%9Bci 300PLN x 2,5L
